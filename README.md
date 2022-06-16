@@ -1,2 +1,0 @@
-# uaspmm.github.io
-WEBSITE PEMBELAJARAN MATEMATIKA
